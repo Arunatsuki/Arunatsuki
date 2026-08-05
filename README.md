@@ -5,7 +5,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  $\color{#FECF72}\textsf{Elliot is fine too ♡}$
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   $\color{#ffffff}\textsf{21yrs ,,' He/They}$
+
 
 
  
