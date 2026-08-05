@@ -6,6 +6,10 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ  $\color{#FEEC79}\textsf{Elliot is fine too ♡}$
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ   ㅤㅤ $\color{#FEEC79}\textsf{21yrs ꕀ◞🍕 He/they}$
+   <a href="https://github.com/flowersan02">
+  <img src="https://komarev.com/ghpvc/?username=flowersan01&label=Builder brothers customers!&color=#FFFFFF&style=flat" />
+</a>
+
 
 
  
