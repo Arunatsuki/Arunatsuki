@@ -61,23 +61,9 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 
 
-❤️ int anyone just don't be weird ok?
 
-💔 DNI proshippers, zoos, incest, toxic ppls/toxic shippers, forsaken fans on thin ice, 15/17 under iwc/on thin ice unless I already know you or just basic dni.
 
-Multishippers, I'll hear yall ships out ! not the weird one tho eugh..
 
-About my ponytown?, that's easy just int with me, but pls dont joke about suggestive/18+ related stuff unless you're an adult aswell.
-
-Im very quiet and akward,sorry if we don't connect easily. I would to be friends with you guys.
-
-sometimes I don't use tonetags
-
-pls tell me if I follow or friends with anyone who is problematic or weird, I easily get fooled alot soo pls /gen
-
-Dont take advantage of my kindness, or try guilt trip me to excuse your toxic/weird behaviors.
-
-JUST DONT BE WEIRD PLS☹️/SRS
  
 <img align="center" width="1280"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221657.png">
