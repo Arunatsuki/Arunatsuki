@@ -6,7 +6,11 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ  $\color{#FEEC79}\textsf{Elliot is fine too ♡}$
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ   ㅤㅤ $\color{#FEEC79}\textsf{21yrs ꕀ◞🍕 He/they}$
-   
+
+
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=18&duration=3300&pause=500&color=FEEC79&center=true&width=435&height=28&lines=And+all+im+askin+in+return%2C+Is+for+you+to+show+me.;Which+way+to+turn.%2C+Trust+me!+I'll+be+the+one+to+fight+for+you.;When+things+go+wrong.%2C+Trust+me,+i'll+never+let+you+down!.;(let+you+down!)." alt="Typing SVG" width="370px"/></a>
+
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ   ㅤㅤ         <a href="https://github.com/flowersan02">
   <img src="https://komarev.com/ghpvc/?username=flowersan02&label=Customers!&color=FDD179&style=flat" />
 </a>
