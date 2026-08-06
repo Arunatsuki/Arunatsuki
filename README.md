@@ -44,10 +44,9 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
  ㅤ
  ㅤ
-  ㅤ
- ㅤ
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ <details closed>
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFA5A1} ᛝ ⏖}}$ ${{\color{#f9f0b1} important!}}$</summary>
+<div align="center">  ㅤ
+ ㅤ<details closed>
+ <summary> ${{\color{#FFA5A1} ᛝ ⏖}}$ ${{\color{#f9f0b1} important!}}$</summary>
 
 | ${{\color{#925283} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
@@ -65,15 +64,19 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 |------------------------------|
 |${{\color{#925283}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤDNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
 </details>
+</div>
 
-<img align="left" width="300"
+
+<img align="left" width="400"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260806221034.png">
-<div align="center">
-
-
-
-<br><br>
-
+    ㅤ 
+    ㅤ 
+        ㅤ 
+            ㅤ 
+    ㅤ 
+    ㅤ 
+    ㅤ     
+<br>
 <table>
   <tr>
     <td>
@@ -86,7 +89,9 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260806221034.png">
 </table>
 
 </div>
-                                                                                                         
+
+<img src="https://cdn.imgchest.com/files/a167d8712a84.gif" width="20px"> ㅤ  [*ata*](https://flowersan.atabook.org/) ${{\color{#572b72} ⋆}}$ [*strawpage*](https://flowersanstrawpage.straw.page/) ${{\color{#572b72} ⋆}}$ [*prns*](https://en.pronouns.page/@Flowersan01) ㅤ  ${{\color{#f9f0b1} (..◜ᴗ◝..)}}$    
+                                                                                                        
 
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ     <img align="center" width="800" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
