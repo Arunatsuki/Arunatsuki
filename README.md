@@ -65,16 +65,30 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 |------------------------------|
 |${{\color{#925283}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤDNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
 </details>
- 
- ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ    $\color{#FEEC79}\textsf{You've reached the end, i hope you enjoyed reading this!}$
- 
- ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ    $\color{#FEEC79}\textsf{flowersan out!}$
- 
-<img align="right" width="600" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260805182506.png">                                                                                                          
+
+<img align="left" width="300"
+src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260806221034.png">
+<div align="center">
 
 
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ <img align="center" width="800" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
- 
+<br><br>
+
+<table>
+  <tr>
+    <td>
+         ${\color{#FEEC79}\textsf{You've reached the end, i hope you enjoyed reading this!}}$
+
+   ${\color{#FEEC79}\textsf{flowersan out!}}$
+      ${\textsf{\color{#F4F3EA}(•ᴗ•)}}$
+    </td>
+  </tr>
+</table>
+
+</div>
+                                                                                                         
+
+
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ     <img align="center" width="800" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 <img align="center" width="1280"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221657.png">
