@@ -34,8 +34,8 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ <details closed>
-  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} important!}}$</summary>
+<details closed>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#572b72} ‹𝟹}}$ ${{\color{#f9f0b1} important!}}$</summary>
 
 | ${{\color{#925283} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
