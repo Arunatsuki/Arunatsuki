@@ -31,11 +31,17 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 
 <img align="center" width="3519" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled23_20260806191614.png">
+ ㅤ
+ ㅤ
 
+ ㅤ
 
-
+ ㅤ
+ ㅤ
+  ㅤ
+ ㅤ
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ <details closed>
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFB25D} ᛝ}}$ ${{\color{#f9f0b1} important!}}$</summary>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFA5A1} ᛝ ⏖}}$ ${{\color{#f9f0b1} important!}}$</summary>
 
 | ${{\color{#925283} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
@@ -47,16 +53,12 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 </details>
 
 <details closed>
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFB25D} ᛝ}}$ ${{\color{#f9f0b1} Int + Byi!}}$</summary>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFA5A1} ᛝ⏖}}$ ${{\color{#f9f0b1} Int + Byi!}}$</summary>
 
-| ${{\color{#925283} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
+| ${{\color{#925283} INT \space anyone \space just \space dont \space be \space weird \space ok? }}$ |
 |------------------------------|
-|${{\color{#925283}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤpls \space dont \space joke \space about \space suggestive/18+ \space related \space stuff \space unless \space you're \space an \space adult \space aswell }}$ |
-| ${{\color{#572b72}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ im \space very \space quiet \space and \space awkward \space sorry \space if \space we \space don't \space connect \space easily \space i \space would \space love \space to \space be \space friends \space with \space you \space guys }}$ |
-| ${{\color{#572b72}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ pls \space tell \space me \space if \space i \space follow \space or \space friends \space with \space anyone \space who \space is \space problematic \space or \space weird, \space I \space easily \space get \space fooled \space alot \space soo \space pls \space /gen }}$ |
-| ${{\color{#572b72}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ don't \space take \space advantage \space of \space my \space kindness \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
-| ${{\color{#572b72}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ JUST \space DONT \space BE \space WEIRD \space PLEASE \space /SRS \space or \space try \space to \space guilttrip \space me \space to \space excuse \space your \space toxic/weird, \space behaviors }}$ |
-</details>
+|${{\color{#925283}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤDNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
+
 
 
 ❤️ int anyone just don't be weird ok?
