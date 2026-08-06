@@ -35,7 +35,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ <details closed>
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFA5A1} ᛝ}}$ ${{\color{#f9f0b1} important!}}$</summary>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FF961E} ᛝ}}$ ${{\color{#f9f0b1} important!}}$</summary>
 
 | ${{\color{#925283} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
@@ -47,7 +47,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 </details>
 
 <details closed>
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FFA5A1} ᛝ}}$ ${{\color{#f9f0b1} Int + Byi!}}$</summary>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  <summary> ${{\color{#FF961E} ᛝ}}$ ${{\color{#f9f0b1} Int + Byi!}}$</summary>
 
 | ${{\color{#925283} multishippers, \space I'll \space hear \space yall \space ships \space out! \space not \space the \space weird \space one \space tho \space eugh... }}$ |
 |------------------------------|
