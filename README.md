@@ -98,4 +98,4 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260806221034.png">
 
 <img align="center" width="1280"
 src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221657.png">
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ  made by ${{\color{#FEEC79} nitrypawliton}}$ [𖹭](https://github.com/nitrypawliton) / ${{\color{#FEEC79} ilovemy-gfgf}}$ [𖹭](https://github.com/ilovemy-gf)
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ  made by ${{\color{#FEEC79} nitrypawliton}}$ [nitrypawliton](https://github.com/nitrypawliton) / ${{\color{#FEEC79} ilovemy-gfgf}}$ [ilovemy-gf](https://github.com/ilovemy-gf)
