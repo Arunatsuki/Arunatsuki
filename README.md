@@ -23,17 +23,22 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
  ㅤ
  ㅤ
  ㅤ
- ㅤ<img align="center" width="140px"
-src="https://file.garden/aiO9m-bAgXvOABPl/tumblr_m8fnke23sf1r7nk4k540.gif">
+ 
 
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=16&duration=3300&pause=500&color=FEEC79&center=true&width=435&height=28&lines=And+all+im+askin+in+return%2C+Is+for+you+to+show+me+Which+way+to+turn.;+Trust+me!+I'll+be+the+one+to+fight+for+you+When+things+go+wrong.;+Trust+me,+i'll+never+let+you+down!.;(let+you+down!)." alt="Typing SVG" width="370px"/></a>
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Gafata&size=16&duration=3300&pause=500&color=FEEC79&center=true&width=431&height=100&lines=And+all+im+askin+in+return%2C+Is+for+you+to+show+me+Which+way+to+turn.;+Trust+me!+I'll+be+the+one+to+fight+for+you+When+things+go+wrong.;+Trust+me,+i'll+never+let+you+down!.;(let+you+down!)." alt="Typing SVG" width="370px"/></a>
 
+<img align="center" width="1000"
+src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ <img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
 
 
 <img align="center" width="3519" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled23_20260806191614.png">
- ㅤ
- ㅤ
+ ㅤ 
+ 
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ <img align="center" width="500" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260804221614.png">
+<img align="center" width="1000"
+src="https://file.garden/aiO9m-bAgXvOABPl/Untitled18_20260805182806.png">
 
  ㅤ
 
@@ -59,8 +64,13 @@ src="https://file.garden/aiO9m-bAgXvOABPl/tumblr_m8fnke23sf1r7nk4k540.gif">
 | ${{\color{#925283} INT \space anyone \space just \space dont \space be \space weird \space ok? }}$ |
 |------------------------------|
 |${{\color{#925283}    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤDNI \space proshippers, \space zoos, \space incest, \space toxic, \space ppls/toxic \space shippers, \space forsaken \space fans \space on \space thin \space ice, \space 15/17 \space iwc/ \space on \space i \space i \space already \space know \space you \space you \space or \space just \space basic \space dni. }}$ |
-
-
+</details>
+ 
+ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ    $\color{#FEEC79}\textsf{You've reached the end, i hope you enjoyed reading this!}$
+ 
+ ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ  ㅤ    $\color{#FEEC79}\textsf{flowersan out!}$
+ 
+<img align="right" width="600" src="https://file.garden/aiO9m-bAgXvOABPl/Untitled19_20260805182506.png">                                                                                                          
 
 
 
