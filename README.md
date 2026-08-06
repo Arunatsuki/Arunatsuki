@@ -10,7 +10,7 @@ src="https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png">
 
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ   ㅤㅤ
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ   ㅤㅤ         <a href="https://github.com/flowersan02">
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ<a href="https://github.com/flowersan02">
   <img src="https://komarev.com/ghpvc/?username=flowersan02&label=Customers!&color=FDD179&style=flat" />
 </a>
 
